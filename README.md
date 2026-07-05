@@ -8,7 +8,8 @@
                             Most prized Cardd 
                                                 ‧˚꒰🐾୭ ˚. ᵎᵎ
 
-<img width="500" height="350" alt="price" src="https://github.com/user-attachments/assets/2529d2ee-747e-44ad-8a58-6fc810cbd951" />
+<img width="500" height="350" alt="price 2" src="https://github.com/user-attachments/assets/ecc8e9d0-99a3-435b-9a84-a7e44d0b25b2" />
+
 
       ‧˚꒰🐾୭ ˚. ᵎᵎ  
                     im huge and hungry
