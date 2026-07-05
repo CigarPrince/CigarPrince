@@ -1,4 +1,12 @@
-## Hi there 👋
+<img width="500" height="350" alt="price" src="https://github.com/user-attachments/assets/ff1d7847-cc26-4da7-80a2-09362cb96e34" />
+
+
+
+
+    ‧˚꒰🐾୭ ˚. ᵎᵎ   
+                  Main Alt
+                            Most prized Cardd 
+                                                ‧˚꒰🐾୭ ˚. ᵎᵎ
 
 <!--
 **CigarPrince/CigarPrince** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
