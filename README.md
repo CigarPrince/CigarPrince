@@ -20,7 +20,7 @@ $${\color{green} Status:Int \ Freely}$$
 <img width="300" height="300" alt="Untitled327_20260712214702" src="https://github.com/user-attachments/assets/0bb44619-81f2-4dee-8262-3d187a1e918a" />
  <img width="100" height="100" alt="Untitled327_20260712221956" src="https://github.com/user-attachments/assets/e857fd41-991a-44a4-b37a-c86f1d35c57b" />
 
-$${\color{Blue} Currently \ Dreaming \ of \ zoro}$$
+$${\color{blue} Currently \ Dreaming \ of \ zoro}$$
 
  $${\color{blue} ( ⸝⸝´꒳`⸝⸝) }$$ 
  <img width="300" height="300" alt="Untitled327_20260712215010" src="https://github.com/user-attachments/assets/e2c7cff5-0074-4a92-bfa2-b651f2dc09ae" />
