@@ -18,7 +18,7 @@ $${\color{green} Status:Int \ Freely}$$
 <img width="300" height="300" alt="Untitled327_20260712214702" src="https://github.com/user-attachments/assets/0bb44619-81f2-4dee-8262-3d187a1e918a" />
  <img width="100" height="100" alt="Untitled327_20260712221956" src="https://github.com/user-attachments/assets/e857fd41-991a-44a4-b37a-c86f1d35c57b" />
 
-$${\color{green} Currently \ Dreaming \ of \ zoro}$$
+$${\color{Blue} Currently \ Dreaming \ of \ zoro}$$
 
 
  <img width="300" height="300" alt="Untitled327_20260712215010" src="https://github.com/user-attachments/assets/e2c7cff5-0074-4a92-bfa2-b651f2dc09ae" />
@@ -26,11 +26,10 @@ $${\color{green} Currently \ Dreaming \ of \ zoro}$$
 <img width="100" height="100" alt="Untitled327_20260712221511" src="https://github.com/user-attachments/assets/8e2d0ef3-91f0-4a46-90bf-fd4e7a81e3b9" />
 
 
-<img width="300" height="300" alt="Untitled327_20260712222709" src="https://github.com/user-attachments/assets/ecf7e6d0-1f2d-4108-94f1-7b79782f8290" />
-<img width="100" height="100" alt="Untitled327_20260712222434" src="https://github.com/user-attachments/assets/baef1deb-bf13-430e-b52b-f87fb2059078" />
-
-
+$${\color{green} Watching \ Zoro \ Sharpen \ His \ Swords}$$
 
 
 <img width="300" height="300" alt="Untitled327_20260712222928" src="https://github.com/user-attachments/assets/7c667d24-bb85-4fa7-8c72-3cb85dd041b0" />
 <img width="100" height="100" alt="Untitled327_20260712222816" src="https://github.com/user-attachments/assets/7d5f0bd3-a871-47c8-b98c-34175d421767" />
+
+$${\color{Blue} Smelling \ Cigar \ Smoke}$$
