@@ -29,4 +29,4 @@ $${\color{Blue} Currently \ Dreaming \ of \ zoro}$$
 
 $${\color{green} Watching \ Zoro \ Sharpen \ His \ Swords}$$
 
- $${\color{green} ރ }$$ 
+ $${\color{green} ⚔︎ }$$ 
