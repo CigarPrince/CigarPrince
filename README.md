@@ -28,8 +28,3 @@ $${\color{Blue} Currently \ Dreaming \ of \ zoro}$$
 
 $${\color{green} Watching \ Zoro \ Sharpen \ His \ Swords}$$
 
-
-<img width="300" height="300" alt="Untitled327_20260712222928" src="https://github.com/user-attachments/assets/7c667d24-bb85-4fa7-8c72-3cb85dd041b0" />
-<img width="100" height="100" alt="Untitled327_20260712222816" src="https://github.com/user-attachments/assets/7d5f0bd3-a871-47c8-b98c-34175d421767" />
-
-$${\color{Blue} Smelling \ Cigar \ Smoke}$$
