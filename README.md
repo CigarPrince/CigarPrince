@@ -1,18 +1,14 @@
-<img width="1200" height="1200" alt="Untitled327_20260712221350" src="https://github.com/user-attachments/assets/6ea8ab03-1d39-441a-8685-8afddafb5ee4" />
-<img width="1200" height="1200" alt="Untitled327_20260712220839" src="https://github.com/user-attachments/assets/aa31ddec-39cf-443f-908f-4d85da47d38b" />
-
-
 
 
 <img width="300" height="300" alt="Untitled327_20260712215146" src="https://github.com/user-attachments/assets/6e1299a1-652a-40b3-a304-5db5bf068a70" />
-
+<img width="100" height="100" alt="Untitled327_20260712221350" src="https://github.com/user-attachments/assets/6ea8ab03-1d39-441a-8685-8afddafb5ee4" />
 
 
  $${\color{green} Main \ Zoro \ Fictkin  }$$ 
 
 
 <img width="300" height="300" alt="Untitled327_20260712215317" src="https://github.com/user-attachments/assets/5eee5591-643f-401c-bdc4-1a7600e62643" />
-
+<img width="100" height="100" alt="Untitled327_20260712220839" src="https://github.com/user-attachments/assets/aa31ddec-39cf-443f-908f-4d85da47d38b" />
 
 $${\color{green} Status:Int \ Freely}$$ 
 
