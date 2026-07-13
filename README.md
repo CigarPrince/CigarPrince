@@ -23,6 +23,7 @@ $${\color{Blue} Currently \ Dreaming \ of \ zoro}$$
 
  $${\color{blue} ( ⸝⸝´꒳`⸝⸝) }$$ 
  <img width="300" height="300" alt="Untitled327_20260712215010" src="https://github.com/user-attachments/assets/e2c7cff5-0074-4a92-bfa2-b651f2dc09ae" />
+<img width="1200" height="1200" alt="Untitled327_20260712215010" src="https://github.com/user-attachments/assets/c88795c4-a074-4c09-862c-9007f891e88d" />
 
 <img width="100" height="100" alt="Untitled327_20260712221511" src="https://github.com/user-attachments/assets/8e2d0ef3-91f0-4a46-90bf-fd4e7a81e3b9" />
 
